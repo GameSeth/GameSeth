@@ -1,0 +1,2 @@
+# GameSeth
+Prietenie
